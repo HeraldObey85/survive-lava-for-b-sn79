@@ -1,4 +1,4 @@
-#  
+#  survive lava for brainrots Scripts automatic is the best survive lava for brainrots Script, featuring aimbot and speed. Safe and powerful for all
 
 
 
